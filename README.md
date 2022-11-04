@@ -39,7 +39,7 @@
 
 ## Feedback
 
-If you have any feedback, please reach out to us at pengkuh.dst@gmail.com
+If you have any feedback, please reach out to me at pengkuh.dst@gmail.com
 
 
 
